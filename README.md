@@ -1,0 +1,2 @@
+# Aviachipta_narx_bashorat_Mohirdev
+amaliyot uchun qilingan
